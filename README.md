@@ -1,3 +1,5 @@
 # Newrepo
 
-## Everything is fine.
+
+Oh Hello Bhagyashree! Happy Friday! 
+
